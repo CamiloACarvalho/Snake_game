@@ -9,5 +9,5 @@ So welcome and enjoy!
 Ah, if you have some idea to become this game better, please comment.
 
 
-(add gif)
+![ThumbsUpالإبهامGIF](https://user-images.githubusercontent.com/111397870/194171733-2a952554-f734-405e-bf53-dbc7be6b0789.gif)
 
